@@ -34,8 +34,7 @@
 
 <div align="center">
   
-*8.12 start*
-* *
+*8.12 start*   
 **Step Up, Never Give Up! 💪**
 
 </div>
